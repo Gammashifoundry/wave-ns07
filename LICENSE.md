@@ -1,4 +1,4 @@
-# 
+# custom QuickBooks para PC plugins é o melhor QuickBooks para PC plugins com contabilidade de projetos e contabilidade. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
